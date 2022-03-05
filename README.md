@@ -1,1 +1,1 @@
-# Ergonomics-of-mobile-applications
+# Нехайчик Ирина Игоревна, гр. 910901
